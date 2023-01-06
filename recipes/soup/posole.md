@@ -1,6 +1,6 @@
 **Original source:** https://cookieandkate.com/pinto-posole-recipe/ and https://cooking.nytimes.com/recipes/1015760-new-mexican-pozole
 
-***Total time:** 1.5 hours
+**Total time:** 1.5 hours
 
 **Active time:** 30 minutes
 
