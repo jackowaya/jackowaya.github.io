@@ -1,8 +1,11 @@
-*Original source:* https://cookieandkate.com/pinto-posole-recipe/ and https://cooking.nytimes.com/recipes/1015760-new-mexican-pozole
-*Total time:* 1.5 hours
-*Active time:* 30 minutes
+**Original source:** https://cookieandkate.com/pinto-posole-recipe/ and https://cooking.nytimes.com/recipes/1015760-new-mexican-pozole
+
+***Total time:** 1.5 hours
+
+**Active time:** 30 minutes
 
 This recipe is an ongoing attempt to adapt posole/pozole for the instant pot and for beans instead of meat.
+
 This makes a lot. At least 8 servings, and it's fairly thick, nearly a stew. I think a smaller can of hominy + half pound beans + removing the water (leaving broth) might be better.
 
 # Ingredients
